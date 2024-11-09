@@ -1,8 +1,4 @@
 
-Sure! Here is the translation in Markdown format:
-
-md
-Code kopieren
 # Allgemeine Geschäftsbedingungen
 
 **CasinoMatching** ist ein Online-Casino-Guide, der sich der Bereitstellung von genauen und vertrauenswürdigen Informationen widmet. Durch die Nutzung von CasinoMatching greifen Sie auf Einblicke zu, die auf den Präferenzen der Betreiber unserer Website basieren. Die Bewertungen werden von unseren Administratoren oder Nutzern bestimmt. Unser Ziel ist es nicht, das Echtgeldspiel zu fördern, sondern hervorragende Casino-Angebote zu präsentieren. Wenn Sie mit einem Casino unzufrieden sind, kann Ihr Feedback die Bewertung des Casinos beeinflussen. Wir können die Bedingungen von beworbenen Casinos nicht ändern; bitte wenden Sie sich bei casino-bezogenen Problemen direkt an deren Kundenservice.
