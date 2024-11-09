@@ -1,13 +1,13 @@
 
 # Allgemeine Geschäftsbedingungen
 
-**CasinoMatching** ist ein Online-Casino-Guide, der sich der Bereitstellung von genauen und vertrauenswürdigen Informationen widmet. Durch die Nutzung von CasinoMatching greifen Sie auf Einblicke zu, die auf den Präferenzen der Betreiber unserer Website basieren. Die Bewertungen werden von unseren Administratoren oder Nutzern bestimmt. Unser Ziel ist es nicht, das Echtgeldspiel zu fördern, sondern hervorragende Casino-Angebote zu präsentieren. Wenn Sie mit einem Casino unzufrieden sind, kann Ihr Feedback die Bewertung des Casinos beeinflussen. Wir können die Bedingungen von beworbenen Casinos nicht ändern; bitte wenden Sie sich bei casino-bezogenen Problemen direkt an deren Kundenservice.
+CasinoMatching ist ein Online-Casino-Guide, der sich der Bereitstellung von genauen und vertrauenswürdigen Informationen widmet. Durch die Nutzung von CasinoMatching greifen Sie auf Einblicke zu, die auf den Präferenzen der Betreiber unserer Website basieren. Die Bewertungen werden von unseren Administratoren oder Nutzern bestimmt. Unser Ziel ist es nicht, das Echtgeldspiel zu fördern, sondern hervorragende Casino-Angebote zu präsentieren. Wenn Sie mit einem Casino unzufrieden sind, kann Ihr Feedback die Bewertung des Casinos beeinflussen. Wir können die Bedingungen von beworbenen Casinos nicht ändern; bitte wenden Sie sich bei casino-bezogenen Problemen direkt an deren Kundenservice.
 
-In diesen Bedingungen wird **"CasinoMatching"** als **"wir," "unser," "uns,"** oder **"Website"** bezeichnet, während **"Sie"** sich auf Besucher bezieht, die CasinoMatching nutzen.
+In diesen Bedingungen wird "CasinoMatching" als "wir," "unser," "uns," oder "Website" bezeichnet, während "Sie" sich auf Besucher bezieht, die CasinoMatching nutzen.
 
 ## Bedingungen für die Nutzung von CasinoMatching
 1. Alle Daten auf CasinoMatching sind allgemeiner Natur und können ohne vorherige Ankündigung geändert werden.
-2. Wenn Sie Inhalte von CasinoMatching verwenden, bitte geben Sie **CasinoMatching.com** als Quelle an.
+2. Wenn Sie Inhalte von CasinoMatching verwenden, bitte geben Sie CasinoMatching.com als Quelle an.
 3. Die Nutzung von CasinoMatching setzt die Zustimmung zu unserer Datenschutzerklärung voraus.
 4. Logos oder Medien, die von CasinoMatching erstellt wurden, dürfen ohne Erlaubnis nicht auf Drittanbieter-Websites geteilt werden.
 5. Wir unterstützen keine Inhalte von Casinos, die auf unserer Website angezeigt werden, da diese ungenau sein können.
